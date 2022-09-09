@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @lilpaulag
-- 👀 I’m interested in ... Music ando developing myself
+- 👀 I’m interested in ... Music and developing myself
 - 🌱 I’m currently learning ... Everything i can
 - 💞️ I’m looking to collaborate on ... Music projects and AI
 - 📫 How to reach me ... on social media as @lilpaulag
